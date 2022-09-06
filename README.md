@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Andrew Leal / Andy / Andros / @LetsGetGitty
+- 👀 A few interests of mine include cooking, going out for picnics and drinks, beach days, basically anything and everything if it's with the right people 😊
+- 🌱 I’m currently learning Computer Science to go into cyber security or web development 
+- 💞️ I’m looking to collaborate on anything, hmu 😉
+- 📫 How to reach me: try and catch me 🏃‍♂️, or discord Andrew#1457
